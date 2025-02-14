@@ -1,1 +1,1 @@
-strbunbvhgmrtcligerwtvgmeritg
+Allahu Akbar
